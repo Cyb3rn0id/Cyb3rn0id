@@ -1,4 +1,4 @@
 ### Hi 👋  
-I'm Bernardo Giovanni.  
-I like programming, electronics and tinkering.  
-I've a blog: https://wwww.settorezero.com
+I'm Bernardo Giovanni from Italy.  
+I love electronics, coding, 3d-printing, retrogaming and photography.  
+All my links: [linktr.ee/cyb3rn0id](https://linktr.ee/cyb3rn0id)  
